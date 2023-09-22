@@ -1,1 +1,1 @@
-ikok
+oombu da punda
